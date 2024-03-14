@@ -1,4 +1,4 @@
-|Terminally silly online fennec that codes and does silly things|
+|Terminally silly online fennec that does silly things|
 |Not suicidal, fuckass. stilly silly both with and without the :3 mattering on the day|
 |Gender decryption failed. Come back later, leadfuck.|
 |Me like privacy, me no give more information, wanker|
